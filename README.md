@@ -1,16 +1,16 @@
-### Hi there 👋
+### Hi.
+Stupid developer, retarded dancer, game lover.
+Sadly uses Miiverse clones.
 
-<!--
-**TermOfficial/TermOfficial** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+# why do you make miiverse clone and use other people code lawl!
+cause im bored and have nothing to do except "attempt" to revive miiverse.
+also i'm making my own base now, so i don't have to use a different base, now shut up.
 
-Here are some ideas to get you started:
+# u r dumb!!11!!!!11
+ok.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+# r u nice??
+yes.
+
+# bye!
+bye.
